@@ -12,21 +12,19 @@ A recurrent neural network (RNN) is a class of artificial neural networks where 
 ----------------------------------------------------
 here is a sample:
 
-
-den when dispate
-if this will not suit such be love small
-who is the doing that is no mamy framer not ensurrow the skne
-to alwats out own face
-hafiz graceful yetts heart and speech of your good
-on the straight a cul i vist
-stee and in this curnigi sert
 the angels in this her hair her heart master will keve a healt will wake
+
 the one kempassidg those
+
 full of his own path her bidde the skn
 
 o mess of divers flowers and in the hand of my lovers sweet lips
+
 and hawars that senver though may have seemed depaver
+
 and the wind secrets of your face and hair
+
 partred my friend
+
 brought a charm fragrant bree
 
